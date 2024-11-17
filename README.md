@@ -1,2 +1,2 @@
 Repositorio de Kennedy R. 
-Hola xd
+Saludos distinguidos y sean bienvenidos a mi humilde repositorio
